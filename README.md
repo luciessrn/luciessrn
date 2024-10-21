@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about all what you want I dont bite :p.. I mean.. yeah.. no.. its safe don't worry lmao :p
 - 📫 How to reach me: In reach me? :((...
 - 😄 Pronouns: miaou pronouns
-- ⚡ Fun fact: I can be professionnal when I have to of course -_-
+- ⚡ Fun fact: I can be professionnal when I have to, of course -_-
 -->
